@@ -1,0 +1,1 @@
+Kendimi mobilde geliştirip, yeni uygulamalar çıkartmak.
